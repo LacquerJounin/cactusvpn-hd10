@@ -1,4 +1,4 @@
-
+premium Trust.Zone App | ad-blocker + IKEv2-support is the best Trust.Zone app, featuring ad-blocker and IKEv2-support. Secure, fast, and optimized for privacy.
 
 
 
